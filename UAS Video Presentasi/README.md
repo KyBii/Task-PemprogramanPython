@@ -1,2 +1,2 @@
 # UAS PEMPROGRAMAN PYTHON
-Link Youtube : https://youtu.be/KTYCbp-Dd2w
+Link Youtube : https://youtu.be/3o9cK8tFPNA
